@@ -15,7 +15,7 @@
   
   <div align="center">
 
-## ${\textsf{\color{#94453b}YURI / JOONHHYUK  }}$
+## ${\textsf{\color{#94453b}"Tell me, you fool. If I continue to regress, will I ever get to meet you again?"  }}$
   </div>
     
 
