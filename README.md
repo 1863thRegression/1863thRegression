@@ -22,4 +22,4 @@
 ${\textsf{\color{#94453b}Writer x reader x protag poly canon trust.}}$ 
 <br> 
 
-${\textsf{\color{#94453b}do no interact or interact with caution.}}$ 
+${\textsf{\color{#94453b}do not interact unless close or interact with caution.}}$ 
