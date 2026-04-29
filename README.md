@@ -19,7 +19,7 @@
   </div>
     
 
-${\textsf{\color{#94453b}Writer x reader x protag poly canon!}}$ 
+${\textsf{\color{#94453b}Writer x reader x protag poly canon trust.}}$ 
 <br> 
 
 ${\textsf{\color{#94453b}do no interact or interact with caution.}}$ 
